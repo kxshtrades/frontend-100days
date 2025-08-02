@@ -1,1 +1,21 @@
-All the content will be put throughout each day so whatever I do on a specific day it'll be in its own folder enjoy :>
+August 1st
+
+Day 1 of Monk-Mode
+
+Watched a hamza video about monk-mode:
+
+Set some goals  
+Decided to stop doing all bad habits  
+Replaced bad habits with coding  
+Accepted that this journey wont be perfect, but everyday is a new opportunity
+
+Coded for 2 hours
+
+Learnt about css box models on freecodecamp.org by building a rothka painting  
+Made a post on github
+
+Posting on github was my goal for the day so I am on track, but I've realized I’m not as locked in as I thought I quit my job on July 25th, to pursue coding, but since then I’ve only coded for 12 hours, I coded for 10 hours total in the 1st 2 days, but came across a project on freecodecamp.org that I couldn’t do perfectly and got discouraged, but I’m back now and I’m not stopping for nothing.
+
+Watched some day trading videos to re familiarize myself with it since I took a break
+
+I WANT IT ALL!!!
