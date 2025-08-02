@@ -1,4 +1,5 @@
 August 1st
+
 Day 1 of Monk-Mode
 
 Watched a hamza video about monk-mode:
