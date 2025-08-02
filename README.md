@@ -20,8 +20,6 @@ Watched some day trading videos to re familiarize myself with it since I took a 
 
 I WANT IT ALL!!!
 
-Also this is what I made 
-
 
 
 
