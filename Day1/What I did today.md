@@ -2,7 +2,7 @@ August 1st
 
 Day 1 of Monk-Mode
 w
-Watched as hamza video about monk-mode:
+Watched a hamza video about monk-mode:
 
 Set some goals  
 Decided to stop doing all bad habits  
