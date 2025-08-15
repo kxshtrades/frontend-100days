@@ -1,7 +1,7 @@
 August 1st
 
 Day 1 of Monk-Mode
-w
+
 Watched a hamza video about monk-mode:
 
 Set some goals  
